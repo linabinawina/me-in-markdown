@@ -11,12 +11,13 @@ During all these hikes, I like to listen to music to drown out any loud breathin
   [ This is a hyperlink to Spotify ](https://open.spotify.com/playlist/2tPDP6BQUwPHxzHxWFIoSl?si=7b3b7c8948ca46b5)
 
 
-  # ALL TIME FAV THINGS !!
-  As much as I love to go on hikes and train for my sports, eating is a big reward after training. Although I don't go very often, Cheesecake Factory has become one of my favorite places to eat at because of their appetizers, the `Mac and Cheese Balls`. They are essentially balls with breadcrumbs around and inside is a gooey mac n cheese that tastes absolutely delicious! At the bottom of the plate is marinara sauce to dip them in and enjoy! My favorite animal is a tiger because of their unique appearance and just how assertive they are! I always grew up watching spongebob, so it's no surprise to me that it's my favorite show *(its also my senior backpack!)* I do watch lots of anime but I don't really speak much about it because not many people I know watch it. However, over the last couple of months I've been reading/watching Jojo's Bizarre Adventure and it has truly become one of my favorites!
-  ![this is an image of my favorite things](favs.jpeg)
+  #  FAV THINGS !!
+  As much as I love to go on hikes and train for my sports, eating is a big reward after training. Although I don't go very often, Cheesecake Factory has become one of my favorite places to eat at because of their appetizers, the `Mac and Cheese Balls`. They are essentially balls with breadcrumbs around and inside is a gooey mac n cheese that tastes absolutely delicious! At the bottom of the plate is marinara sauce to dip them in and enjoy! My favorite animal is a tiger because of their unique appearance and just how assertive they are! I always grew up watching spongebob, so it's no surprise to me that it's my favorite show *(its also my senior backpack!)* I do watch lots of anime but I don't really speak much about it because not many people I know watch it. However, over the last couple of months I've been reading/watching Jojo's Bizarre Adventure and it has truly become one of my favorites! The grey cat is Pancakes who I've had since I was 4 years old, making him 13 years old today! I also included a real photo from my Chino Hills hike on the bottom right, and in the top right is a photo of me and my friend during cross country practice `(not very fun)`. At the bottom left is my current obsession which is the new Tomodachi Life game! It has been so much fun making my friends and seeing how their lives are in the game world and seeing how each story turns out!
+  ![this is an image of my favorite things](collage.jpeg)
 
-# *Some* Goals I want to reach this 2026!
-  # 2026 GOALS
+# *Some* Goals I want to reach this 2026-2027 school year!
+Goals I want to reach to better myself and improve my quality of life!
+  # 2026-2027 GOALS
   - Pass all my AP tests
   - Improve my running skills
   - Improve my wrestling skills
